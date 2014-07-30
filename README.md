@@ -1,4 +1,4 @@
 igoods
 ======
 
-Apple iphone stuff
+Apple iphone stuff http://igoods.pl
